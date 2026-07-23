@@ -1,2 +1,1 @@
-![image alt](https://github.com/I1uvcas/I1uvcas/blob/5cc59acb364b87d156a4cd291f2b5ab8d1b84a1d/148f8efbe85bc74659ab4902ea951f4f.jpg)
-# welcome to my page 😛
+![image alt](https://github.com/I1uvcas/I1uvcas/blob/336c78c320537ebc17aebe80e69d84804c7ae739/Untitled1114_20260723084432.png)
